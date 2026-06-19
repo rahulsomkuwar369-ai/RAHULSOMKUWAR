@@ -213,11 +213,11 @@ Focused on building intelligent enterprise solutions and scalable AI platforms.
 
 # 🌐 Connect With Me
 
-📧 Email: rahulsomkuwar1986@gmail.com
+📧 Email: rahulsomkuwar1986@gmail.com,somkuwarrahul33@gmail.com
 
 🌍 Website: https://www.somtechsolution.com
 
-💼 LinkedIn: Add Your LinkedIn URL
+💼 LinkedIn: www.linkedin.com/in/rahul-somkuwar-975b39284
 
 ---
 
